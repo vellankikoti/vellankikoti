@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **vellankikoti@gmail.com**
 
-- ⚡ Fun fact **I'm definitely something not nothing!**
+- ⚡ Fun fact **I'm something, definitely not nothing!**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
